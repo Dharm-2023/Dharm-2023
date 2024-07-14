@@ -52,8 +52,3 @@ My main goal is to provide complete support to clients and build a trusting work
 I assure you that you will be happy and satisfied with my work.
 
 Thanks
-Dharmendra Patidar
-
-🌟 Profile Keywords:-
-
-WordPress Developer, WordPress Expert, Elementor, Web Design, WordPress e-commerce, WordPress Migration, WordPress Installation, WordPress Customization, WordPress Website, WordPress Multisite, WordPress Security, WordPress Theme, WordPress Optimization, PSD to WordPress, WordPress SEO Plugins, WordPress Plugin, WordPress Landing Page, WordPress Development, WordPress Backup, WordPress Bug Fix, WordPress Consultation, WordPress Thrive Theme, Divi, Website Designer, Frontend Developer, Wix, etc...
